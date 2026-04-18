@@ -4,7 +4,7 @@
 
 ## 👨‍💻 About Me
 
-My name is **Ronny Rogers**.  
+My name is **Mugabo Rongin**.  
 I am a **Cybersecurity Specialist, Developer, Penetration Tester, and Ethical Hacker**.
 
 I design and develop open-source cybersecurity tools focused on ethical hacking, security research, and education.
