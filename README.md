@@ -1,4 +1,4 @@
-# Ronny Rogers 👋
+# Mugabo Rongin 👋
 
 ![Profile Image](https://raw.githubusercontent.com/Ronny12345-art/Ronny12345-art/refs/heads/main/ronny-rogers.png)
 
