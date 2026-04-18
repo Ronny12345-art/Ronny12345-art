@@ -1,6 +1,6 @@
 # Mugabo Rongin 👋
 
-![Profile Image](https://raw.githubusercontent.com/Ronny12345-art/Ronny12345-art/refs/heads/main/ronny-rogers.png)
+![Profile Image](https://github.com/Ronny12345-art/Ronny12345-art/blob/main/mugabo-rongin-cybersecurity.png)
 
 ## 👨‍💻 About Me
 
