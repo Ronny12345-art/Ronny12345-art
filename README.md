@@ -23,7 +23,7 @@ I design and develop open-source cybersecurity tools focused on ethical hacking,
 ## 🌐 Social Media & Professional Profiles
 
 - 💼 LinkedIn: https://rw.linkedin.com/in/mugabo-rongin-2631a23b1
-- 🐦 Twitter (X): https://x.com/Rogersronny28 
+- 🐦 Twitter (X): https://x.com/MugaboRongin
 - 🌍 Facebook:  https://web.facebook.com/shema.kelly.313  
 - 📸 Instagram: https://www.instagram.com/ronny_rogers28/
 - 👽 Reddit: https://www.reddit.com/user/According_Silver_938/
